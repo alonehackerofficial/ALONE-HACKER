@@ -9,7 +9,7 @@
 
 ## MY YOUTUBE CHANNEL
 
-![PicsArt_01-06-12 17 52](https://user-images.githubusercontent.com/96905918/148271995-70de3304-28c5-43cc-9d8b-06e221119851.jpg)
+![1641409038036](https://user-images.githubusercontent.com/96905918/148273303-c5cc9f3d-30e2-4b70-8df6-aae68edf3440.png)
 
  - https://youtube.com/channel/UClS5s3yUHTwo8GuH1-hi42w
 
